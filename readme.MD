@@ -1,4 +1,7 @@
 
 
-SE23UARI027 -- SAI KAMAL KOUSHIK
+NAMASTE!
+
+This is my github profile. Stay tuned for regular updates.
+
 
